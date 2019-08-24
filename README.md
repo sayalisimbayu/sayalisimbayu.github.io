@@ -1,1 +1,0 @@
-# sayalisimbayu.github.io
